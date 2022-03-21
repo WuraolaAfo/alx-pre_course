@@ -1,2 +1,2 @@
 
-sarah is beaautiful
+sarah is beautiful
